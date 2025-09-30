@@ -1,0 +1,2 @@
+# Gerentes-oficial
+fotos
